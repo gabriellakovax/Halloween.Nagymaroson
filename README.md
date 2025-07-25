@@ -1,1 +1,1 @@
-Támogatói oldal Nagymaros Hallowen
+Támogatói oldal Nagymaros Halloween
